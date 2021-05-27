@@ -6,5 +6,5 @@
 
 Links!
 - [Google Scholar](https://scholar.google.ca/citations?user=RMFvWr8AAAAJ&hl=en)
-- [Research Gate (which I never check](https://www.researchgate.net/profile/Madeline-Jarvis-Cross)
+- [Research Gate (which I never check)](https://www.researchgate.net/profile/Madeline-Jarvis-Cross)
 - [Marty's Lab](https://krkosek.eeb.utoronto.ca/)
