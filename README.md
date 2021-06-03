@@ -1,4 +1,4 @@
-# Ça va? 🤠
+# Comment ça va? 🤠
 ## I'm Maddie
 
 - PhD student in Marty Krkosek's lab at U of T 🐟⛴
