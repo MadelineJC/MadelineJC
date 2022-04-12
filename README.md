@@ -1,7 +1,7 @@
 # Ça va? 🤠
 ## I'm Maddie
 
-- PhD student in Marty Krkosek's lab at U of T 🐟⛴
+- PhD candidate in Marty Krkosek's lab at U of T 🐟⛴
 - Interested in disease ecology across scales, in the context of climate change 🦠
 - Really just vibing 😎
 
