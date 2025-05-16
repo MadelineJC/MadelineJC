@@ -1,9 +1,9 @@
 # Ça va? 🤠
 ## I'm Maddie
 
-- PhD candidate in Marty Krkosek's lab at U of T 🐟⛴
+- Newly-minted PhD, supervised by Marty Krkosek at the University of Toronto 🐟⛴
+- Incoming postdoctoral researcher at the University of California, Davis
 - Interested in disease ecology across scales, in the context of climate change 🦠
-- Really just vibing 😎
 
 Links!
 - [Website](https://madelinejarviscross.weebly.com/)
